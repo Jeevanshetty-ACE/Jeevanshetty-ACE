@@ -1,7 +1,7 @@
 # 💫 Hi 👋, I'm Jeevan Shetty
 **A passionate Coder! || aspiring to become a Software Engineer|| 
 
-Email Me 👉 ✉️ **jeevansmshetty09@gmail.com** For Project discussion or Anything Else. 😊😊
+Email Me 👉 ✉️ **jeevansmshetty09@gmail.com** for Project discussion or Anything Else. 😊😊
 
 - 🔭 **I’m currently studying on:** Acharya Institute of Technology.
 - 🌱 **I’m currently learning:** CSE in Bachelor of Engineering.
